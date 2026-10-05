@@ -17,7 +17,7 @@
 
 ## 📫 Контакты
 
-- 📧 Email: anna205298@gmail.com
+- 📧 Email: anna2005298@gmail.com
 - 💬 Telegram: @bakuani
 
 ---
